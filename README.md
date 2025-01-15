@@ -8,7 +8,7 @@
   
 - 🌱 I’m currently learning programmer
   
-- 💞️ I’m looking to collaborate on programming and game development
+- 💞️ I’m looking to collaborate on programming and game development and game cs2 :)
   
 - 📫 How to reach me telegram @ZELLOIN
 
